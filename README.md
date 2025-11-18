@@ -1,5 +1,6 @@
-![image_alt](https://github.com/0STIREY/0stirey/blob/39b6018e3264c000ac77a5788424dde2ef3bdc3b/Untitled1091_20251028204354.png)
-
+<p align="center">
+  <img width="460" height="440" src="https://github.com/pwnedbyskeet/pwnedbyskeet/blob/eecbfff7fff33c07318484d036f6f593ebd52e83/Untitled1118_20251118203439-fotor-bg-remover-2025111851821.png">
+</p>
 
 <div align="center">
   <img src="https://files.catbox.moe/wqrhln.gif" alt="description" />
