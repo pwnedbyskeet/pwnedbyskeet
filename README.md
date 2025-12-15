@@ -13,7 +13,8 @@ $${\color{blue}"There~ must~ be~ something~ wrong~ with~ me~!" }$$
   <img width="500" height="500" src="https://github.com/user-attachments/assets/23f827e1-5613-49a7-9cce-a6603e3c610c ">
 </p>
 
-wip.
-
+<p align="center">
+ <a href="https://ostirey.carrd.co/">carrd<a/>
+ </p>
 
 
