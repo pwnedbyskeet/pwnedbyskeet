@@ -15,6 +15,6 @@ $${\color{blue}"There~ must~ be~ something~ wrong~ with~ me~!" }$$
 
 
 <p align="center">
- <a href="https:https://0stireyy.carrd.co/">carrd<a/>
+ <a href="https://0stireyy.carrd.co/">carrd<a/>
 </p>
 
