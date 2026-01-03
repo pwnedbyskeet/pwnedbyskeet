@@ -9,8 +9,8 @@ $${\color{blue}"Call~ the~" }$$ $${\color{red}"DOCTOR" }$$ $${\color{blue}"There
 </p>
 
 
-<p align="center">                                          <p align="center">
- <a href="https://0stireyy.carrd.co/">carrd<a/>              <a href="https://colormytree.me/2025/01KCB0MK7KB4T5A2N502ACFVKB">tree!<a/>
-</p>                                                        </p>
+<p align="center">                                          
+ <a href="https://0stireyy.carrd.co/">carrd<a/>              
+</p>                                                        
 
 
