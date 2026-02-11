@@ -1,11 +1,14 @@
 <p align="center">
-  <img width="500" height="500" src="https://github.com/user-attachments/assets/7a799828-651c-442a-b7f3-7d00260be64b">
+  <img width="500" height="500" src="https://github.com/user-attachments/assets/e9cc47c5-7512-4b78-9d5c-5c643ca8957c">
+
 </p>
 
-$${\color{blue}"Call~ the~" }$$ $${\color{red}"DOCTOR" }$$ $${\color{blue}"There~ must~ be~ something~ wrong~ with~ me~!" }$$
+$${\color{red}"Is~ it~ okay~ if~ I~ call~ you~ mine?" }$$ 
 
 <p align="center">
-  <img width="500" height="500" src="https://github.com/user-attachments/assets/23f827e1-5613-49a7-9cce-a6603e3c610c ">
+  <img width="500" height="500" src="https://github.com/user-attachments/assets/ee08b25a-7970-4cbd-9f07-faf9a9bab970">
+
+
 </p>
 
 
@@ -13,4 +16,8 @@ $${\color{blue}"Call~ the~" }$$ $${\color{red}"DOCTOR" }$$ $${\color{blue}"There
  <a href="https://0stireyy.carrd.co/">carrd<a/>              
 </p>                                                        
 
+
+
+<p align="center">
+  <img width="100" height="100" src="https://github.com/user-attachments/assets/2945a64c-b4ea-45a0-b626-6569cf3c2299">
 
