@@ -1,14 +1,13 @@
 <p align="center">
-  <img width="500" height="500" src="https://cdn.discordapp.com/attachments/1362423372784336906/1470385212218150976/glzmsz.png?ex=6998f231&is=6997a0b1&hm=292df07326a085928fdb8c3ed1642dbbc5a4501a788aa9c55ffef5f0be895ce1&">
-
-</p>
-
-$${\color{green}in~ remake~ waaaaaaaaaaaaaaaaaaaaaaaaaaaaa }$$ 
+  <img width="500" height="500" src="https://cdn.discordapp.com/attachments/1441419721927819304/1474372917809778771/Untitled1211_20260220194938.png?ex=69999c48&is=69984ac8&hm=edae12e37d78907ee666053162c6e86e53c87079c78e046a3b53d8d40ca6f8d3&">
 
 
+$${\color{green}"PUNK~ TACTICS!~ -~ JOEY~ VALENCE~ AND~ BRAE~" }$$ 
 
 
-</p>
+<p align="center">
+  <img width="500" height="500" src="https://cdn.discordapp.com/attachments/1441419721927819304/1474394716563832874/e2ecf1.png?ex=6999b095&is=69985f15&hm=31366fc509ba72b6df3154ea0d125ff3ad1f0d3d3ef719dd0fc48a5da6057b2a&">
+
 
 
 <p align="center">                                          
