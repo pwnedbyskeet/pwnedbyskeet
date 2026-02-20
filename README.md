@@ -5,8 +5,7 @@
 
 $${\color{green}in~ remake~ waaaaaaaaaaaaaaaaaaaaaaaaaaaaa }$$ 
 
-<p align="center">
-  <img width="500" height="500" src="https://github.com/user-attachments/assets/ee08b25a-7970-4cbd-9f07-faf9a9bab970">
+
 
 
 </p>
@@ -22,6 +21,5 @@ $${\color{green}in~ remake~ waaaaaaaaaaaaaaaaaaaaaaaaaaaaa }$$
 
 
 
-<p align="center">
-  <img width="100" height="100" src="https://github.com/user-attachments/assets/2945a64c-b4ea-45a0-b626-6569cf3c2299">
+
 
