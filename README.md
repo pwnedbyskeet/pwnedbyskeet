@@ -2,7 +2,7 @@
 
 
 <p align="center"> 
-<img width="500" height="700" alt="Untitled124_20260912164010" src="https://github.com/user-attachments/assets/c5ba001d-46ac-41ee-aecc-0b24fa2a4291" />
+<img width="500" height="700" alt="" />
 
 $${\color{green}"can~ i~ use~ that~ for~ my~ intro?" }$$ 
 
