@@ -17,9 +17,9 @@ src="https://github.com/pwnedbyskeet/pwnedbyskeet/blob/8aa8f86e8f1ef6469e2079cc7
   $${\color{blue}LOST?~ LOST?~ LOST?~ }$$   $${\color{white}LOST?~ LOST?~ LOST?~ }$$
   ━━━━━━━━━━━━━━
   𝟣𝟦-𝟣𝟧 | {code}[𝐻𝐸.𝐻𝐼𝑀] only  $${\color{grey}DO~ YOU~ HEAR~ IT~ TOO???~ }$$
-  he/him straight-ally, aroflux.
+  iwc unless i know you always, 
   my boundaries + info are in the links above.
-  $${\color{blue}so952~ 9w8.~ "NEUTRAL~ GOOD~" }$$
+  $${\color{blue}so592~ 5w6 .~ "NEUTRAL~ GOOD~" }$$
     ━━━━━━━━━━━━━━ 
 $${\color{blue}b 💙~ i~ love~ you~ iwh~ and~ edh~/p }$$
    
