@@ -19,7 +19,7 @@ src="https://github.com/pwnedbyskeet/pwnedbyskeet/blob/8aa8f86e8f1ef6469e2079cc7
   𝟣𝟦-𝟣𝟧 | {code}[𝐻𝐸.𝐻𝐼𝑀] only  $${\color{grey}DO~ YOU~ HEAR~ IT~ TOO???~ }$$
   iwc unless i know you always, 
   my boundaries + info are in the links above.
-  $${\color{blue}so592~ 5w6 .~ "NEUTRAL~ GOOD~" }$$
+  $${\color{blue}so582~ 5w6 .~ "NEUTRAL~ GOOD~" }$$
     ━━━━━━━━━━━━━━ 
 $${\color{blue}b 💙~ i~ love~ you~ iwh~ and~ edh~/p }$$
    
